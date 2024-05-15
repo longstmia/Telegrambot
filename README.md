@@ -1,2 +1,2 @@
-
-<img src='https://imgur.com/a/FwdqAdY'>
+ТЕЛЕГРАММ КУРС ПО ПРОДАЖЕ КУРСОВ 
+https://imgur.com/a/FwdqAdY
